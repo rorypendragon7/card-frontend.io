@@ -91,8 +91,3 @@ Este desafío es completamente gratuito.Compártelo con cualquiera que lo encuen
 
 ** ¡Diviértete construyendo! ** 🚀
 # rorypendragon7.io
-# rorypendragon7.io
-# rorypendragon7o.io
-# rorypendragon7o.io
-# rorypendragon7o.io
-# rorypendragon7o.io
